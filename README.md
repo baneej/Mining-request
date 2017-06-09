@@ -1,0 +1,2 @@
+# Mining-request
+i search some guys who want to mine with me in a pool.  for every hash what you do 24h. you will get dayly from me btc.  example  400 hashes = 24 hours = 4eur in btc dayly if you do only 12 hours = 2eur completly logical Wink   if you want to enjoy me please write me  i need any hash what i can get !!  i will send you miner.exe and code for the .bat file write me pn if you got amd or nvidia  my Skype acex* epvp  thanks !
